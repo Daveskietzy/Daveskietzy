@@ -2,10 +2,11 @@
 
 ## Personal Information
 
-######       • **Name**: Daveriel G. Acojedo 
-######       • **Location**: La Solodaridad Estates Homes 2A, Timbao, Biñan, Laguna
-
-Here are some ideas to get you started:
+#### • **Name**: Daveriel G. Acojedo 
+#### • **Location**: La Solodaridad Estates Homes 2A, Timbao, Biñan, Laguna
+#### • **Contact**:
+###### °  09772986584
+###### ° denvergallego9@gmail.com
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
