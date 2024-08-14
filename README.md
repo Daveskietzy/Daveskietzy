@@ -1,4 +1,3 @@
-![](https://github.com/user-attachments/assets/93d4158f-6acf-4377-b06b-83ef6465c3ae "This is the tool tip")
 # About Me 
 
 ###### "God is Good all the time"
