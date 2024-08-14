@@ -6,7 +6,7 @@
 
 #### • **Name**: Daveriel G. Acojedo 
 #### • **Location**: La Solodaridad Estates Homes 2A, Timbao, Biñan, Laguna
-#### • **Contact**:
+### • **Contact**:
 #### •  09772986584
 #### • denvergallego9@gmail.com
 
