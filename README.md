@@ -1,4 +1,5 @@
-#### ![Dave](https://github.com/user-attachments/assets/94c73649-078b-4cb9-a4d3-3a60134d6be4)
+![Daveriel](https://github.com/user-attachments/assets/93d4158f-6acf-4377-b06b-83ef6465c3ae)
+
 
 
 # About Me 
