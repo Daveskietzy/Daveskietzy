@@ -21,7 +21,7 @@
 ## Hobbies and Interests
 
 #### • **Anime**✨
-#### • **Action**⚔
+#### • **Action**⚔ 
 #### • **Comedy**😂
 #### • **Fantasy**🎆
 #### • **Romance**🥰
