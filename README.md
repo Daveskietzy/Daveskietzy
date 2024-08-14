@@ -1,4 +1,9 @@
+![Dave](https://github.com/user-attachments/assets/94c73649-078b-4cb9-a4d3-3a60134d6be4)
+
+
 # About Me 
+
+###### "God is Good all the time"
 
 ## Personal Information
 
@@ -15,11 +20,22 @@
 #### • **Tertiary Schoo**l: La Consolacion College Biñan
 ###### ° **Course: Bachelor of Science in Computer Science 1**
 
-- 🌱 I’m 
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Hobbies and Interests
+
+#### • **Anime**✨
+#### • **Action**⚔
+#### • **Comedy**😂
+#### • **Fantasy**🎆
+#### • **Romance**🥰
+#### • **Mystery**🔒
+#### • **Mobile Legends Bang Bang**🎮
+#### • **Clash of Clans**🧩
+#### • **Basketball** 🏀
+#### • **Baseball** ⚾
+#### • **Bini** 🌸
+
+## Motto
+
+#### • Practice Makes Perfect ✓
+
+
