@@ -1,9 +1,9 @@
 # About Me 
 
-## **Personal Information**
+## Personal Information
 
-####       • Name: Daveriel G. Acojedo 
-####       • Location: La Solodaridad Estates Homes 2A, Timbao, Biñan, Laguna
+####       • **Name**: Daveriel G. Acojedo 
+####       • **Location**: La Solodaridad Estates Homes 2A, Timbao, Biñan, Laguna
 
 Here are some ideas to get you started:
 
