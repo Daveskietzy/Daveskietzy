@@ -1,3 +1,6 @@
+![cropped_image](https://github.com/user-attachments/assets/99057c88-c376-43f7-8bad-d1b54a08f8b6)
+
+
 # About Me 
 
 ###### "God is Good all the time"
