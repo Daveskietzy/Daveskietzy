@@ -23,7 +23,6 @@
 #### • **Action**⚔ 
 #### • **Comedy**😂
 #### • **Fantasy**🎆
-#### • **Romance**🥰
 #### • **Mystery**🔒
 #### • **Mobile Legends Bang Bang**🎮
 #### • **Clash of Clans**🧩
